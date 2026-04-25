@@ -1,4 +1,4 @@
-
+automatic Scripts for king legacy is the best king legacy Script, featuring invisibility and auto-farm. Safe and powerful for all your needs.
 
 
 
